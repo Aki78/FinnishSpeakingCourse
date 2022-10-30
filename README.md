@@ -66,3 +66,81 @@ oja (dike)
 
 Mä olen lukenut jo kaikki japanilaiset sarjskuva laiton sivusto.
 
+## 24th October 2022
+Deadline (aikaraja) on kuudes päivä.
+
+Mä palasin kello 12 (puoleta öin)
+
+ralli - neglantia (tankero - englanti (rare))
+
+Kimi R. on eläkkeellä
+
+räjähdys
+
+valmistujaiset (valmistua -> verbi)
+
+Hä pukeutui noidaksi
+
+kummitus, aave
+
+kumma = outo
+
+Mä kerään
+
+Riippuu
+
+Mitä varten sä opiskelet
+
+pohjois/etelä-napa, päiväntasaaja
+
+Afrikka on tosi iso manner/mantere.
+
+suuri, suurenpi, suurin
+
+yleinen
+
+Jos mä en olisi puoliksi amerikkalainen englantia.
+
+aivovuoto
+
+Miehet pakenevat Venäjältä 
+
+insinööri
+
+asiantuntija
+
+Mä näytin vanhemmalta, joten mä ostin hiilarit
+
+sormenjäki
+
+sakko = fine
+
+aivavuoto = brain drain
+
+pidentää = extend
+
+paeta = flee
+
+kävelu = pedestrian
+
+pelata = to be afraid
+
+pakarat 
+
+sorman jalkien = finger print
+
+hikailee = sweat
+
+tunnistaa = recognize
+
+tsygä = fillari
+
+mask = naami
+
+kekkeri?
+
+kurpitsa = pumpkin
+
+kosteus = humidity
+
+vuokranantaja = landlord

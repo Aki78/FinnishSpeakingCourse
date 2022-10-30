@@ -66,7 +66,7 @@ oja (dike)
 
 Mä olen lukenut jo kaikki japanilaiset sarjskuva laiton sivusto.
 
-## 24th October 2022
+## 30th October 2022
 Deadline (aikaraja) on kuudes päivä.
 
 Mä palasin kello 12 (puoleta öin)
